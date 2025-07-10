@@ -10,4 +10,4 @@
 
 本平台为您精选91精品国产乱码麻豆白嫩系列资源，内容涵盖久久不见久久见免费影院及国产精品刺激对白97等，支持多清晰度播放，保证观看顺畅，满足各种需求。
 
-<span style="display:none;">[Canonical link]()</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250710/haha15)</span>
